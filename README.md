@@ -1,1 +1,1 @@
-brahhh.... im a minor and that's it, i dont use this account anymore i think ehmm, might barely use it lmaoaooo
+I'm actually banned from Pony.Town (permanently), so if you're seeing this, hello! :)
