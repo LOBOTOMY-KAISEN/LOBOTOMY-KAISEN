@@ -1,1 +1,1 @@
-I'm actually banned from Pony.Town (permanently), so if you're seeing this, hello! :)
+I'm no longer banned on pony.town !! ^^
